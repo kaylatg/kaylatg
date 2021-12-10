@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kaylatg
+- 👀 My favorite things to do are dance and play video games.
+- 🌱 I’m currently majoring in Computer Science with a double minor in French and Dance at the University of Georgia.
+- 💞️ I’m looking to become a game developer.
+- 📫 The best email to reach me at is kayla.george@uga.edu.
