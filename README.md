@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Kayla!
-- 👀 My favorite things to do are dance and play video games.
-- 💞️ I will be graduating with a B.S. in Computer Science + a minor in French from the University of Georgia in December 2023.
-- 📫 The best email to reach me at is kayla.george@uga.edu.
+- 👀 My favorite things to do are code, dance, read, play video games, and complete problem-solving puzzles.
+- 💞️ I recently graduated from the University of Georgia with a B.S. in Computer Science + a minor in French.
+- 📫 The best email to reach me at is ktgwebsites@gmail.com.
