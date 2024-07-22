@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Kayla!
 - 👀 My favorite things to do are code, dance, read, play video games, and complete problem-solving puzzles.
 - 💞️ I recently graduated from the University of Georgia with a B.S. in Computer Science + a minor in French.
-- 📫 The best email to reach me at is ktgwebsites@gmail.com.
+- 📫 The best email to reach me at is kaylatrinitygeorge@gmail.com.
